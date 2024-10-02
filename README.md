@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @meo712,I’m currently learning Data Analytics, i'm looking for enhance my training in data analytics.
